@@ -23,7 +23,7 @@
 
 ## 2.1. Riesgo de Incendio 
 
-La 
+En los 
 
 ## 2.2. Riesgo de Caida al mismo nivel
 
